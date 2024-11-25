@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DaveNguyen05
 - 👀 I’m interested in motorcycle and PC Building
 - 🌱 I’m currently learning Cyber Security.
-- 📫 How to reach me davenguyen2k5@gmail.com or through my LinkedIn.
+- 📫 How to reach me: davenguyen2k5@gmail.com or through my LinkedIn.
 - 😄 Pronouns: He/Him
 
 <!---
